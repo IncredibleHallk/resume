@@ -1,1 +1,0 @@
-Kent Hall resume
